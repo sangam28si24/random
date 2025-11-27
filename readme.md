@@ -1,1 +1,1 @@
-this is a set of web apps, built by Sangam Singh, T&C apply
+this is a set of random stuffs, made by Me
